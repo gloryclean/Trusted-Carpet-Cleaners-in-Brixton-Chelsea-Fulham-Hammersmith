@@ -16,3 +16,11 @@
 <p style="text-align: justify;" data-start="1852" data-end="1902"><strong>Carpet Cleaning in Hammersmith You Can Rely On</strong></p>
 <p class="" style="text-align: justify;" data-start="1904" data-end="2178">Glory Clean is climbing the ranks as a go-to option for <strong data-start="1960" data-end="1994">carpet cleaners in Hammersmith</strong>. We know that a clean home starts from the ground up&mdash;and our Hammersmith team is ready to help you with last-minute appointments, routine maintenance, or end-of-tenancy carpet cleans.</p>
 <p class="" style="text-align: justify;" data-start="2180" data-end="2297">👉 <a class="" href="https://www.gloryclean.co.uk/carpet-cleaning-hammersmith" target="_new" rel="noopener" data-start="2183" data-end="2297">Get your carpets professionally cleaned in Hammersmith</a></p>
+<p><strong>Why Glory Clean?</strong></p>
+<ul>
+<li>Same-day and weekend bookings available</li>
+<li>Fully insured and trained staff</li>
+<li>Eco-friendly cleaning solutions</li>
+<li>100% satisfaction guarantee</li>
+</ul>
+<p>Whether you&rsquo;re in <strong>Brixton</strong>, <strong>Chelsea</strong>, <strong>Fulham</strong>, or <strong>Hammersmith</strong>, Glory Clean is your trusted choice for spotless, fresh carpets.</p>
